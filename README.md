@@ -1,4 +1,4 @@
-# Hi there, I'm Ayan Khan 👋
+# 👨‍💻✨ Hi there, I'm Ayan Khan 👋
 
 🎓 B.Tech CSE (IoT & Blockchain) Student
 
